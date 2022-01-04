@@ -1,2 +1,15 @@
-# dwangmedicatieslavernij
+---------------------------
+| dwangmedicatieslavernij |
+---------------------------
+
+
+# bouman ggz
+https://nl.wikipedia.org/wiki/Bouman_GGZ
+
+# slavernij
+https://en.wikipedia.org/wiki/Slavery
+
+# isoleercel
+https://nl.wikipedia.org/wiki/Isoleercel
+
 doctor nekschot in action
